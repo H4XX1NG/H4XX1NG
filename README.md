@@ -6,7 +6,7 @@
 ⠀⠀ ⠀⠀⠀ WELCOME TO MY TERMINAL, MY NAME IS 007N7. CALL ME NICKNAMES! I DON'T CARE! EXCEPT I DO CARE. CALL ME SEV. 
 
 
-⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀⠀ ⠀<img width="606" height="251" alt="007n7" src="https://github.com/user-attachments/assets/8abc6880-08de-4d64-b36b-aef338b21171" />
+⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀<img width="606" height="251" alt="007n7" src="https://github.com/user-attachments/assets/8abc6880-08de-4d64-b36b-aef338b21171" />
 
 
 
