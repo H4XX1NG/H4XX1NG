@@ -1,16 +1,30 @@
-## Hi there 👋
 
-<!--
-**H4XX1NG/H4XX1NG** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<img width="1731" height="484" alt="topdiiv" src="https://github.com/user-attachments/assets/7c3a7bf5-5bce-4164-9c14-fd233586f010" />
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+⠀⠀ ⠀⠀⠀ WELCOME TO MY TERMINAL, MY NAME IS 007N7. CALL ME NICKNAMES! I DON'T CARE! EXCEPT I DO CARE. CALL ME SEV. 
+
+
+⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀ ⠀⠀ ⠀⠀<img width="606" height="251" alt="007n7" src="https://github.com/user-attachments/assets/8abc6880-08de-4d64-b36b-aef338b21171" />
+
+
+
+⠀⠀⠀ ⠀⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀  I'M 16! DON'T BE A FRIGGIN' WEIRDO IF YOU'RE 18 OR OVER!
+
+
+⠀⠀⠀ ⠀ I LIKE **HETALIA,** *OMORI,* DOKURO CHAN, AND A LOT OF OTHER THINGS. I DON'T CARE ENOUGH TO LIST THEM SO JUST *ASK ME IF YOU WANT TO KNOW.* 
+⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ 
+
+⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀⠀ ⠀⠀⠀ ⠀YOUR SHIPCOURSE ISN'T WORTH MY TIME! DON'T INVOLVE ME! I DON'T WANT TO ARGUE OVER SHIPS!
+⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ 
+
+⠀⠀⠀ ⠀⠀I'M A 007N7 FICTIONKIN, BUT I AM A FRANCE (HETALIA) FICTIVE. I HEAVILY IDENTIFY WITH BOTH SO I DO HAVE BOUNDARIES. LIKE, NO 77NOLI OR FRUK, SERIOUSLY.
+
+
+⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀THANKS FOR READING THIS, MAN! SIGN MY ATA OR STRAWPAGE, WHILE YOU'RE AT IT !!!
+
+
+
+<img width="1731" height="484" alt="bottomdiiiv" src="https://github.com/user-attachments/assets/4f7867e2-809d-4163-aa5c-0ed498953dc1" />
+
