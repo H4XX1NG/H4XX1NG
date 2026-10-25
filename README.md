@@ -1,12 +1,12 @@
 
-<img width="1731" height="484" alt="topdiiv" src="https://github.com/user-attachments/assets/7c3a7bf5-5bce-4164-9c14-fd233586f010" />
+<img width="1731" alt="topdiiv" src="https://github.com/user-attachments/assets/7c3a7bf5-5bce-4164-9c14-fd233586f010" />
 
 
 
 ⠀⠀ ⠀⠀⠀ WELCOME TO MY TERMINAL, MY NAME IS 007N7. CALL ME NICKNAMES! I DON'T CARE! EXCEPT I DO CARE. CALL ME SEV. 
 
 
-⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀<img width="606" height="251" alt="007n7" src="https://github.com/user-attachments/assets/8abc6880-08de-4d64-b36b-aef338b21171" />
+⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀ ⠀<img width="606"  alt="007n7" src="https://github.com/user-attachments/assets/8abc6880-08de-4d64-b36b-aef338b21171" />
 
 
 
@@ -26,5 +26,5 @@
 
 
 
-<img width="1731" height="484" alt="bottomdiiiv" src="https://github.com/user-attachments/assets/4f7867e2-809d-4163-aa5c-0ed498953dc1" />
+<img width="1731" alt="bottomdiiiv" src="https://github.com/user-attachments/assets/4f7867e2-809d-4163-aa5c-0ed498953dc1" />
 
